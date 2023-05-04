@@ -7,3 +7,8 @@
 ![near-protocol-near-logo](https://user-images.githubusercontent.com/63062130/235427167-0ab2f870-d148-4b30-b654-bf3f24670868.png)
 ![polygon-matic-logo](https://user-images.githubusercontent.com/63062130/235427169-5241ccf6-6bc2-4950-a22b-60400563c2a3.png)
 ![solana-sol-logo](https://user-images.githubusercontent.com/63062130/235427170-66e4237c-6a63-4c8a-aba4-845170c6fc99.png)
+
+
+![10x Academy](https://user-images.githubusercontent.com/63062130/236141959-fca188d4-e5f8-4fbb-b08c-00a1641a56f4.png)
+![no-drafts](https://user-images.githubusercontent.com/63062130/236141972-13662de3-6b16-41b4-a69e-accfc061dbb4.png)
+![vihaan logo](https://user-images.githubusercontent.com/63062130/236141975-bae3a963-8b32-40ee-8e91-4cadab832d81.png)
