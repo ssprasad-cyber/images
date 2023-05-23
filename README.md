@@ -12,6 +12,7 @@
 ![10x Academy](https://user-images.githubusercontent.com/63062130/236141959-fca188d4-e5f8-4fbb-b08c-00a1641a56f4.png)
 ![no-drafts](https://user-images.githubusercontent.com/63062130/236141972-13662de3-6b16-41b4-a69e-accfc061dbb4.png)
 ![vihaan logo](https://user-images.githubusercontent.com/63062130/236141975-bae3a963-8b32-40ee-8e91-4cadab832d81.png)
+![IMG_20230425_213235-min](https://github.com/spotmies/images/assets/63062130/62a9bc7e-4f75-4090-ac68-07d16df9c5cd)
 
 
 ![13_](https://github.com/pdkkg/images/assets/105122668/32499ec4-9a2d-4055-bdcf-d5fb70aff4aa)
@@ -33,3 +34,8 @@
 
 ![20230521_151048](https://github.com/spotmies/images/assets/63062130/62a81bce-5a0c-4912-beb3-f6e57ab9b81c)
 ![20230521_134636](https://github.com/spotmies/images/assets/63062130/96a12133-f89e-4eb1-9c93-cd9e61da6e00)
+
+![IMG_20230425_213235-min](https://github.com/spotmies/images/assets/63062130/6ec5b169-1bcf-477a-8fe8-ff1abbe54b6d)
+
+![240264734-62a9bc7e-4f75-4090-ac68-07d16df9c5cd](https://github.com/spotmies/images/assets/63062130/044abb59-672c-4622-86a7-dc98da276cb4)
+
