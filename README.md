@@ -31,3 +31,5 @@
 ![IMG_20221201_082304](https://github.com/spotmies/images/assets/63062130/e60a7053-78e9-4a19-a093-de2342bac05d)
 ![WhatsApp Image 2023-05-10 at 12 16 00 PM](https://github.com/spotmies/images/assets/63062130/be5c749a-6eff-4620-b475-40683acfa331)
 
+![20230521_151048](https://github.com/spotmies/images/assets/63062130/62a81bce-5a0c-4912-beb3-f6e57ab9b81c)
+![20230521_134636](https://github.com/spotmies/images/assets/63062130/96a12133-f89e-4eb1-9c93-cd9e61da6e00)
