@@ -39,3 +39,6 @@
 
 ![240264734-62a9bc7e-4f75-4090-ac68-07d16df9c5cd](https://github.com/spotmies/images/assets/63062130/044abb59-672c-4622-86a7-dc98da276cb4)
 
+![MetaMask_Fox svg](https://github.com/spotmies/images/assets/63062130/897969e1-0c2e-43a6-b836-a47f62b4c9c0)
+
+
