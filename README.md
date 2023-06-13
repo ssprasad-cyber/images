@@ -43,5 +43,9 @@
 
 ![02_](https://github.com/spotmies/images/assets/63062130/56089883-176b-4025-8169-a3826b541b2c)
 
+![reaidy logo](https://github.com/spotmies/images/assets/63062130/b5ebedd3-1204-4b73-8b6a-c3eb1be818a8)
+
+
+
 
 
