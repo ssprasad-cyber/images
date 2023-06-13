@@ -46,6 +46,9 @@
 ![reaidy logo](https://github.com/spotmies/images/assets/63062130/b5ebedd3-1204-4b73-8b6a-c3eb1be818a8)
 
 
+![Google__G__Logo svg](https://github.com/spotmies/images/assets/63062130/6a19d364-9fae-4e55-9069-8b4e7924e124)
+
+
 
 
 
